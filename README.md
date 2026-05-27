@@ -21,7 +21,7 @@
 ---
 
  📫 Contact Me
-- Email: your-email@gmail.com  
+- Email: abdulmalik2k23cse7@gmail.com
 - LinkedIn: your-linkedin-profile  
 
 ---
